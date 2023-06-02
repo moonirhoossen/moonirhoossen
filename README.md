@@ -19,6 +19,8 @@
 - 📫 How to reach me **https://monirhossen.cu.ma/**
 
 <h3 align="left">Connect with me:</h3>
+**https://monirhossen.cu.ma/**
+**moonirhoossen@gmail.com/**
 <p align="left">
 </p>
 
